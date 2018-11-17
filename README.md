@@ -1,1 +1,1 @@
-# Cvicimnohy.github.io
+# Cvicimnohy.com
